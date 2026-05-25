@@ -22,6 +22,7 @@
 
 <p align="center">
 hi im krow i ship inkmachine  </br>
+vee is literally me irl. (kin) </br>
 i also play minecraft, overwatch, team fortress 2, run a tiktok, and make art.
 </br>
 </br>
