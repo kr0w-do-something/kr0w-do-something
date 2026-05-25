@@ -23,4 +23,13 @@
 <p align="center">
 hi im krow i ship inkmachine  </br>
 i also play minecraft, overwatch, team fortress 2, run a tiktok, and make art.
+</br>
+</br>
+</br>
+𝘩𝘰𝘸 𝘥𝘰 𝘺𝘰𝘶 𝘵𝘩𝘪𝘯𝘬 𝘵𝘩𝘦 𝘸𝘰𝘳𝘭𝘥 𝘪𝘴 𝘨𝘰𝘪𝘯𝘨 𝘵𝘰 𝘦𝘯𝘥?
+</br>
+</br>
+𝗶 𝗱𝘂𝗻𝗻𝗼. </br>
+𝗶 𝘁𝗿𝘆 𝗻𝗼𝘁 𝘁𝗼 𝘁𝗵𝗶𝗻𝗸 𝗮𝗯𝗼𝘂𝘁 𝗶𝘁. </br>
+𝗶'𝘃𝗲 𝗴𝗼𝘁 𝘀𝗵𝗶𝘁 𝘁𝗼 𝗱𝗼 𝗮𝗻𝗱 𝗽𝗲𝗼𝗽𝗹𝗲 𝘁𝗼 𝗹𝗼𝘃𝗲 𝗶𝗻 𝘁𝗵𝗲 𝗺𝗲𝗮𝗻𝘁𝗶𝗺𝗲. </br>
 </p>
