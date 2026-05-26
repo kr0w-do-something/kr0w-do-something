@@ -27,7 +27,8 @@ vee is literally me irl. </br>
 </p>
 <p align="center">
 📺 63  🦖 49  🐇 49  🍓 42‎  🖋️ 35 </br>
-i also play minecraft, overwatch, team fortress 2, run a tiktok, and make art.
+i also play minecraft, overwatch, team fortress 2, run a tiktok, and make art. </br>
+if you think you know me elsewhere whisper me </br>
 </br>
 </br>
 </br>
