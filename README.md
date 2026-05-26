@@ -23,6 +23,12 @@
 <p align="center">
 hi im krow i ship inkmachine  </br>
 vee is literally me irl. (kin) </br>
+</p>
+<p align="center" width="100%">
+<video src="https://private-user-images.githubusercontent.com/55640471/597934509-ac541990-3a89-435c-a59f-6e2640b1d04e.mov?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzk3Njg2NTgsIm5iZiI6MTc3OTc2ODM1OCwicGF0aCI6Ii81NTY0MDQ3MS81OTc5MzQ1MDktYWM1NDE5OTAtM2E4OS00MzVjLWE1OWYtNmUyNjQwYjFkMDRlLm1vdj9YLUFtei1BbGdvcml0aG09QVdTNC1ITUFDLVNIQTI1NiZYLUFtei1DcmVkZW50aWFsPUFLSUFWQ09EWUxTQTUzUFFLNFpBJTJGMjAyNjA1MjYlMkZ1cy1lYXN0LTElMkZzMyUyRmF3czRfcmVxdWVzdCZYLUFtei1EYXRlPTIwMjYwNTI2VDA0MDU1OFomWC1BbXotRXhwaXJlcz0zMDAmWC1BbXotU2lnbmF0dXJlPWRiMTA4NWQ0MDg0MjQxOTAyNjMzNTc5MzA2NjE0ZDE3ZWYzZDk4ZDc1ZDdmNjhmNzQwMjk0MzRhODBiMTczODUmWC1BbXotU2lnbmVkSGVhZGVycz1ob3N0JnJlc3BvbnNlLWNvbnRlbnQtdHlwZT12aWRlbyUyRnF1aWNrdGltZSJ9.WzrGpPpKsVJRoda6WdJeQ6yEXXUwVzUVNd23mFg32dE" width="320" height="240" controls></video>
+</p>
+<p align="center">
+📺 63  🦖 49  🐇 49  🍓 42‎  🖋️ 35 </br>
 i also play minecraft, overwatch, team fortress 2, run a tiktok, and make art.
 </br>
 </br>
