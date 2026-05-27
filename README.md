@@ -29,7 +29,7 @@ vee is literally me irl. </br>
 📺 63  🦖 49  🐇 49  🍓 42‎  🖋️ 35 </br>
 i also play minecraft, overwatch, team fortress 2, run a tiktok, and make art. </br>
 if you think you know me elsewhere whisper me </br>
-c+h always and w2i if im stated as offtab :) </br>
+c+h and w2i always im 90% of the time afk using an autoclicker </br>
 </br>
 </br>
 </br>
