@@ -22,8 +22,6 @@
 <p align="center">
 hi im krow i play a lot of games  </br>
 snufkin is literally me irl. </br>
-</p>
-<p align="center">
 some of the activites i get up to are minecraft, overwatch, team fortress 2, running a tiktok, and making art. </br>
 if you think you know me elsewhere whisper me </br>
 c+h and w2i always im 90% of the time afk using an autoclicker </br>
