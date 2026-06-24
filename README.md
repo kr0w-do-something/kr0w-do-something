@@ -14,7 +14,7 @@
 
 
 <p align="center">
-<img width="373" height="373" alt="ezgif-6031198c5df042ee" src="https://github.com/user-attachments/assets/0e32b54c-9594-418a-bae3-59f314b0f667" /> <img width="498" height="373" alt="snusmumriken-snufkin" src="https://github.com/user-attachments/assets/bfe2f0aa-9937-4ee7-b726-9f01e472efac" />
+<img width="370" height="370" alt="ezgif-6031198c5df042ee" src="https://github.com/user-attachments/assets/0e32b54c-9594-418a-bae3-59f314b0f667" /> <img width="498" height="373" alt="snusmumriken-snufkin" src="https://github.com/user-attachments/assets/bfe2f0aa-9937-4ee7-b726-9f01e472efac" />
 </p>
 
 <p align="center">
